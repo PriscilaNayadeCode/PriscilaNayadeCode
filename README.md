@@ -6,7 +6,7 @@
 🏢 **Atuação Profissional**
 
 🚀 Autônoma
-🎓 Pós-Graduanda em Ciências de Dados e Inteligência Artificial no Instituto Líbano PUCRS
+🎓 Pós-Graduanda em Ciências de Dados e Inteligência Artificial na UNINTER
 
 ### 📊 Estatísticas no GitHub
 
